@@ -1,16 +1,17 @@
-## Hi there 👋
-
 <!--
-**aveeriess/aveeriess** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img align="left" img src="https://github.com/drapetoman1a/drapetoman1a/blob/5bd7a1e3d7c4bfea03ee498644887d5c13920ec9/007n7.png" width="300" height="300" alt="image">
 
-Here are some ideas to get you started:
+  <tr>
+    <th>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  <div align="center">
+
+$${\color{#ffffff} 　"　\color{#ffffff} txtxtxt　\color{#c87246} txtxtxt　\color{#ffffff} txtxtxt　" }$$
+ 
+𖡻|𓈒　txtxtxt　　<img src="https://github.com/aveeriess/aveeriess/blob/5442f078184bc8f26115b91c80c2154545c28576/gifts.webp" width="80" height="10" alt="image">
+
+txtxt　𓈒　txtxt　𓈒　txtxt　︵  ͝͏𓏼𓈒 ᩧ
+
+"　txtxtxt　txtxtxt　txtxtxt　"
+
+　             　　txtxtxt　　ℐ𓈒 ᩧ
