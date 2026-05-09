@@ -10,7 +10,7 @@ $${\color{#ffffff} "　\color{#454667} lost　\color{#454667} cause  \color{#fff
 <div align="center">
 <img src="https://github.com/aveeriess/aveeriess/blob/a082ee01fb01574161f62bdf61557ede56782954/oie_94230wBuLBahF.gif" width="90" height="60" alt="image">
 
-</div>
+  <div align="center">
 txtxt　𓈒　txtxt　𓈒　
  txtxtxtxtx 
 
