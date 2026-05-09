@@ -22,13 +22,7 @@ txtxt　𓈒　txtxt　𓈒　
 <p align ="center">
   <img src=https://github.com/aveeriess/aveeriess/blob/a082ee01fb01574161f62bdf61557ede56782954/48%20sin%20t%C3%ADtulo_20260508224831.png width="400" height="450" alt="image">
 
-</div>
-
-  <img align="right" img src="https://github.com/aveeriess/aveeriess/blob/a082ee01fb01574161f62bdf61557ede56782954/48%20sin%20t%C3%ADtulo_20260508225001.png" width="140" height="140" alt="image">
-  <tr>
-    <th>
-
-  <div align="left">
+  <div align="center">
     
 $${\color{#ffffff} read　\color{#454667} strawpage　\color{#ffffff} before  \color{#454667}　interacting }$$
 
