@@ -1,5 +1,5 @@
 
-<img align="left" img src="https://github.com/aveeriess/aveeriess/blob/8a36bcac3beff5c9d60c70aa4ec10a906a51845a/48%20sin%20t%C3%ADtulo_20260508224954.png" width="200" height="200" alt="image">
+<img align="left" img src="https://github.com/aveeriess/aveeriess/blob/8a36bcac3beff5c9d60c70aa4ec10a906a51845a/48%20sin%20t%C3%ADtulo_20260508224954.png" width="300" height="300" alt="image">
 
   <div align="center">
 
