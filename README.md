@@ -1,6 +1,6 @@
 <img align="left" img src="https://github.com/aveeriess/aveeriess/blob/8a36bcac3beff5c9d60c70aa4ec10a906a51845a/48%20sin%20t%C3%ADtulo_20260508224954.png" width="260" height="260" alt="image">
 
-  <div align="center">
+<div align="center">
 
 $${\color{#ffffff} "　\color{#454667} lost　\color{#454667} cause  \color{#ffffff}　" }$$
  
