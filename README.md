@@ -27,6 +27,6 @@ txtxt　𓈒　txtxt　𓈒　
 $${\color{#ffffff} read　\color{#454667} strawpage　\color{#ffffff} before  \color{#454667}　interacting }$$
 
   <div align="center">
-<a href="https://reuuhs.straw.page"><img src="https://github.com/aveeriess/aveeriess/blob/28bca048135c19bca4b4ad20b189f66236369dd8/48%20sin%20t%C3%ADtulo_20260508224936.png" width="60" height="60" alt="Strawpage" /></a>
-<a href="https://reuuhs.atabook.org/"><img src="https://github.com/aveeriess/aveeriess/blob/28bca048135c19bca4b4ad20b189f66236369dd8/48%20sin%20t%C3%ADtulo_20260508224844.png" width="60" height="60" alt="Atabook" /></a>
-<a href="https://rentry.co/wemmburps"><img src="https://github.com/aveeriess/aveeriess/blob/28bca048135c19bca4b4ad20b189f66236369dd8/48%20sin%20t%C3%ADtulo_20260508224853.png" width="60" height="60" alt="Rentry" /></a>
+<a href="https://reuuhs.straw.page"><img src="https://github.com/aveeriess/aveeriess/blob/28bca048135c19bca4b4ad20b189f66236369dd8/48%20sin%20t%C3%ADtulo_20260508224936.png" width="80" height="80" alt="Strawpage" /></a>
+<a href="https://reuuhs.atabook.org/"><img src="https://github.com/aveeriess/aveeriess/blob/28bca048135c19bca4b4ad20b189f66236369dd8/48%20sin%20t%C3%ADtulo_20260508224844.png" width="80" height="80" alt="Atabook" /></a>
+<a href="https://rentry.co/wemmburps"><img src="https://github.com/aveeriess/aveeriess/blob/28bca048135c19bca4b4ad20b189f66236369dd8/48%20sin%20t%C3%ADtulo_20260508224853.png" width="80" height="80" alt="Rentry" /></a>
