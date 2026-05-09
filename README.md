@@ -17,11 +17,8 @@ txtxt　𓈒　txtxt　𓈒　
 "　txtxtxt　txtxtxt　txtxtxt　"
 
 　             　　txtxtxt　　ℐ𓈒 ᩧ
-                
-   </th>
-   </tr>
+   
 </div>
-
 <p align ="center">
   <img src=https://github.com/aveeriess/aveeriess/blob/a082ee01fb01574161f62bdf61557ede56782954/48%20sin%20t%C3%ADtulo_20260508224831.png width="400" height="450" alt="image">
 
