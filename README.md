@@ -1,14 +1,16 @@
-<img align="left" img src="https://github.com/aveeriess/aveeriess/blob/8a36bcac3beff5c9d60c70aa4ec10a906a51845a/48%20sin%20t%C3%ADtulo_20260508224954.png" width="160" height="160" alt="image">
 
-  <tr>
-    <th>
+<img align="left" img src="https://github.com/aveeriess/aveeriess/blob/8a36bcac3beff5c9d60c70aa4ec10a906a51845a/48%20sin%20t%C3%ADtulo_20260508224954.png" width="200" height="200" alt="image">
 
   <div align="center">
 
 $${\color{#ffffff} "　\color{#454667} lost　\color{#454667} cause  \color{#ffffff}　" }$$
  
-ᵂᵉˡᶜʸ *!* ! <img src="https://github.com/aveeriess/aveeriess/blob/a082ee01fb01574161f62bdf61557ede56782954/oie_94230wBuLBahF.gif" width="90" height="60" alt="image">
+ᵂᵉˡᶜʸ *!* ! 
 
+<div align="center">
+<img src="https://github.com/aveeriess/aveeriess/blob/a082ee01fb01574161f62bdf61557ede56782954/oie_94230wBuLBahF.gif" width="90" height="60" alt="image">
+
+</div>
 txtxt　𓈒　txtxt　𓈒　
  txtxtxtxtx 
 
