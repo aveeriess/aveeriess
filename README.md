@@ -1,15 +1,19 @@
-<img align="left" img src="https://github.com/drapetoman1a/drapetoman1a/blob/5bd7a1e3d7c4bfea03ee498644887d5c13920ec9/007n7.png" width="130" height="150" alt="image">
+<!---
+<img align="left" img src="https://github.com/aveeriess/aveeriess/blob/8a36bcac3beff5c9d60c70aa4ec10a906a51845a/48%20sin%20t%C3%ADtulo_20260508224954.png" width="150" height="150" alt="image">
 
   <tr>
     <th>
 
   <div align="center">
 
-$${\color{#ffffff} "　\color{#ffffff} txtxtxt　\color{#c87246} txtxtxt　\color{#ffffff} txtxtxt　" }$$
+$${\color{#ffffff} "　\color{#454667} lost　\color{#454667} cause  \color{#ffffff}　" }$$
  
-𖡻|𓈒　txtxtxt　　<img src="https://github.com/aveeriess/aveeriess/blob/5442f078184bc8f26115b91c80c2154545c28576/gifts.webp" width="20" height="20" alt="image">
+ᵂᵉˡᶜʸ *!* ! <img src="https://github.com/aveeriess/aveeriess/blob/a082ee01fb01574161f62bdf61557ede56782954/oie_94230wBuLBahF.gif" width="90" height="60" alt="image">
 
-txtxt　𓈒　txtxt　𓈒　txtxt　︵  ͝͏𓏼𓈒 ᩧ
+txtxt　𓈒　txtxt　𓈒　
+ txtxtxtxtx 
+
+<div align="center">
 
 "　txtxtxt　txtxtxt　txtxtxt　"
 
@@ -20,19 +24,19 @@ txtxt　𓈒　txtxt　𓈒　txtxt　︵  ͝͏𓏼𓈒 ᩧ
 </div>
 
 <p align ="center">
-  <img src=https://github.com/aveeriess/aveeriess/blob/23efac88869637137175c1c76f07b215fa516d60/cosaaa.png alt="image">
+  <img src=https://github.com/aveeriess/aveeriess/blob/a082ee01fb01574161f62bdf61557ede56782954/48%20sin%20t%C3%ADtulo_20260508224831.png width="290" height="250" alt="image">
 
 
 
 
 
-  <img align="right" img src="https://github.com/drapetoman1a/drapetoman1a/blob/5bd7a1e3d7c4bfea03ee498644887d5c13920ec9/007n7.png" width="150" height="150" alt="image">
+  <img align="right" img src="https://github.com/aveeriess/aveeriess/blob/a082ee01fb01574161f62bdf61557ede56782954/48%20sin%20t%C3%ADtulo_20260508225001.png" width="150" height="150" alt="image">
   <tr>
     <th>
 
-  <div align="center">
-text
-text
-text
-text
- <img src=https://github.com/aveeriess/aveeriess/blob/9b449efdff68554537571ac8a864a07e6b97d5af/stamps.png width="60" height="60" alt="image"> <img src=https://github.com/aveeriess/aveeriess/blob/9b449efdff68554537571ac8a864a07e6b97d5af/stamps.png width="60" height="60" alt="image"> <img src=https://github.com/aveeriess/aveeriess/blob/9b449efdff68554537571ac8a864a07e6b97d5af/stamps.png width="60" height="60" alt="image">
+  <div align="left">
+    
+$${\color{#ffffff} read　\color{#454667} strawpage　\color{#ffffff} before  \color{#454667}　interacting }$$
+
+<img src=https://github.com/aveeriess/aveeriess/blob/9b449efdff68554537571ac8a864a07e6b97d5af/stamps.png width="60" height="60" alt="image"> 
+  <img src=https://github.com/aveeriess/aveeriess/blob/9b449efdff68554537571ac8a864a07e6b97d5af/stamps.png width="60" height="60" alt="image"> <img src=https://github.com/aveeriess/aveeriess/blob/9b449efdff68554537571ac8a864a07e6b97d5af/stamps.png width="60" height="60" alt="image">
