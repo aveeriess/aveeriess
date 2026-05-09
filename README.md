@@ -1,5 +1,7 @@
 <img align="left" img src="https://github.com/aveeriess/aveeriess/blob/8a36bcac3beff5c9d60c70aa4ec10a906a51845a/48%20sin%20t%C3%ADtulo_20260508224954.png" width="260" height="260" alt="image">
 
+  <tr>
+    <th>
 <div align="center">
 
 $${\color{#ffffff} "　\color{#454667} lost　\color{#454667} cause  \color{#ffffff}　" }$$
@@ -18,10 +20,13 @@ txtxt　𓈒　txtxt　𓈒　
 "　txtxtxt　txtxtxt　txtxtxt　"
 
 　             　　txtxtxt　　ℐ𓈒 ᩧ
-                
+
+  <tr>
+    <th>
+     
   <div align="center">
     
-  <img src=https://github.com/aveeriess/aveeriess/blob/a082ee01fb01574161f62bdf61557ede56782954/48%20sin%20t%C3%ADtulo_20260508224831.png width="880" height="880" alt="image">
+  <img src=https://github.com/aveeriess/aveeriess/blob/a082ee01fb01574161f62bdf61557ede56782954/48%20sin%20t%C3%ADtulo_20260508224831.png width="800" height="800" alt="image">
 
   <div align="center">
     
